@@ -1,5 +1,5 @@
 # 💫 About Me:
-Full stack developer< <br>Certified data Analyst <br>CERTIFIED JUNIOR SOFTWARE DEVELOPER <br>Web analysis <br> DevOps Engineer<br>IDE CERTIFICATE <br>AVAILABLE FOR FREELANCE PROJEct
+Full stack developer <br>Certified data Analyst <br>CERTIFIED JUNIOR SOFTWARE DEVELOPER <br>Web analysis <br> DevOps Engineer<br>IDE CERTIFICATE <br>AVAILABLE FOR FREELANCE PROJEct
 
 
 ## 🌐 Socials:
